@@ -1,1 +1,1 @@
-# saw
+Buenas dias o buenas tardes soy Santiago Cristopher Gutierrez Ramos soy de la carrera de ingenieria de sistemas ,voy cursando el segundo año de mis estudios superiores,actualmente vivo en el distrito de characato y termine mi secundaria en la institucion educativa particular thales de mileto.
